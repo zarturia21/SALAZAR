@@ -1,15 +1,13 @@
 # SALAZAR JEZA MAE
 
-## 5 Dislike
+=============================
 
-## blood
-## Worm
-## Failed 
-## Plastic Friend
-## ioly Food
+## bugtong bugtong sundalo pa balik balik sa kanto hehehe
 
-### Group Member
+=============================
+
+### group member
 
 ### Ron Albert Sarigumba
 ### John Mhico Tutor
-### Jeza Mae R. Salazar
+### Jeza Mae Salazar

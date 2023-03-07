@@ -1,15 +1,13 @@
 # SALAZAR JEZA MAE
 
-## 5 Dislike
-
 ## blood
-## Worm
-## Failed 
-## Plastic Friend
-## ioly Food
+## worm
+## failed
+## plastic friend
+## ioly food
 
-### Group Member
+### group member
 
 ### Ron Albert Sarigumba
 ### John Mhico Tutor
-### Jeza Mae R. Salazar
+### Jeza Mae Salazar

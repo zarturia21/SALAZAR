@@ -1,4 +1,4 @@
-# SALAZAR JEZA MAE
+# **SALAZAR JEZA MAE**
 
 =============================
 
@@ -8,6 +8,8 @@
 
 ### group member
 
-### Ron Albert Sarigumba
-### John Mhico Tutor
-### Jeza Mae Salazar
+### *Ron Albert Sarigumba*
+### *John Mhico Tutor*
+### *Jeza Mae Salazar*
+
+###### me my self & I
